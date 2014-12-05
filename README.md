@@ -11,7 +11,7 @@ building since there was outside shingles on the interior wall at the back of th
 I was working at Polaroid when the building was destroyed, and it had never crossed my mind that
 it wouldn't be around forever since it had been there as long as I could remember. So now I
 deeply regret not taking plenty of photos of it. What I really wish I could do is a detailed
-rendering in something like Second Life, with all the interior stuff my siblings and cousins
+rendering in something like [Second Life](http://secondlife.com/), with all the interior stuff my siblings and cousins
 will remember from our childhoods. Maybe we can collect our recollections and do something
 like that. But I remember things like a nautical chart that hung over the dining table, and
 a Franklin stove with an exhaust pipe that meandered around the living room ceiling to reach
